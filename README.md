@@ -1,1 +1,0 @@
-# Portif-lio-IA-Generativa
